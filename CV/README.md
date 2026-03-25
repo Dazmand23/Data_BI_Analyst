@@ -6,7 +6,7 @@ Astana, Kazakhstan
 ✉️ <b>dramirchi777@gmail.com</b> | 
 💼 <a href="https://www.linkedin.com/in/bekbassynov" target="_blank">LinkedIn</a> | 
 🖥 <a href="https://github.com/Dazmand23" target="_blank">GitHub</a> | 
-📩 <a href="https://t.me/daddydamir" target="_blank">Telegram</a> | 
+📩 <a href="https://t.me/dr_bsnv" target="_blank">Telegram</a> | 
 📞 <b>+7 747 898 24 74</b>
 </p>
 
